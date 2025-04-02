@@ -1,4 +1,4 @@
-# 🎬 **Interview-Vorbereitungsguide: Mit Beispielen & detaillierten Strategien**
+# 🎬 **Interview-Vorbereitung**
 
 ## 🧠 **Teil 1: Lerntypen-Bestimmung mit Praxisbeispielen**
 
