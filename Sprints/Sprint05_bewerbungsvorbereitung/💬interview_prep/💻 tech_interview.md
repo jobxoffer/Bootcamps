@@ -1,3 +1,0 @@
-# Bootcamps
-
-# Für alle
