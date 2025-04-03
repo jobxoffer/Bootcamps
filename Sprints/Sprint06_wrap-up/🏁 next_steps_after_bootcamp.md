@@ -64,6 +64,6 @@ Erinnere dich zurück: Vor einigen Wochen warst du noch am Anfang im Bewerbungsp
 **Deine nächsten Schritte:**  
 1. Atme tief durch – du schaffst das  
 2. Öffne deinen Bewerbungsordner – jetzt!  
-3. Schreib uns bei jedem Durchhänger (#career-support)  
+3. Schreib uns bei jedem Durchhänger (#mindset-support)  
 
 *Die Tech-Welt wartet auf dich – zeig ihr, was in dir steckt!* 🚀  
